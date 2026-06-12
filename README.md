@@ -1,4 +1,4 @@
-# \# Red Bull Blog 🐂
+# Red Bull Blog 🐂
 
 # 
 
